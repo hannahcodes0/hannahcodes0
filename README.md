@@ -1,1 +1,2 @@
-Aspiring front end developer from NYC 👀
+Aspiring front end developer 👀
+NYC / Seoul 🌐
